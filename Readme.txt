@@ -1,0 +1,1 @@
+Tukaj bodo vsa predavanja in vaje na ŠC Nova Gorcia pri predmetu Razvoj programskih aplikacij
